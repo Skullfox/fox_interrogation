@@ -1,5 +1,5 @@
-//- fox_interrogation  -\\ 
-\\  http://shira.at   // 
+//- fox_interrogation       -\\ 
+\\  Skullfox aka shiragami   // 
         
 How to use: 
      
